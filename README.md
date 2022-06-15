@@ -8,5 +8,5 @@ Olá! Bem vindo ao link de receitas.
 
 ### - [BOLO DE FUBÁ CREMOSO](https://www.tudogostoso.com.br/receita/3468-bolo-de-fuba-cremoso.html)
 
-:cookie::cookie::cookie:.
+:cookie::cookie::cookie:
 
